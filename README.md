@@ -1,6 +1,6 @@
 # ir Duct Cleaning Equipments & Tools 
 
-[https://proaireq.com/air-duct-cleaning-equipment/](Air duct cleaning equipment) plays an important role in keeping the air ducts of homes and buildings clean and free from contaminants. Regular maintenance and repair of this equipment is crucial to ensure that it functions efficiently and effectively. Here are some tips for maintaining and repairing your air duct cleaning equipment:
+[Air duct cleaning equipment](https://proaireq.com/air-duct-cleaning-equipment/) plays an important role in keeping the air ducts of homes and buildings clean and free from contaminants. Regular maintenance and repair of this equipment is crucial to ensure that it functions efficiently and effectively. Here are some tips for maintaining and repairing your air duct cleaning equipment:
 
 Regular Cleaning and Inspection
 Regular cleaning and inspection of your air duct cleaning equipment is essential to keep it functioning properly. Before and after each use, inspect the equipment for any damage or wear and tear. Make sure to clean and sanitize the equipment after each use to prevent the spread of contaminants.
